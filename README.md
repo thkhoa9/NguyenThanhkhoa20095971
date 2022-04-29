@@ -1,2 +1,0 @@
-# NguyenThanhkhoa20095971
-NguyenThanhKhoa20095971
